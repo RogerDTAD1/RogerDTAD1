@@ -2,7 +2,7 @@
 - 👀 I’m interested in airdrop
 - 🌱 I’m currently learning web3
 - 💞️ I’m looking to collaborate on network, like utube
-- 📫 How to reach me ...
+- 📫 How to reach me. just here
 - 😄 Pronouns: ...
 - ⚡ Fun fact: c
 - I found I have 2 achieves already.
