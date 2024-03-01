@@ -7,7 +7,7 @@
 - ⚡ Fun fact: c
 - I found I have 2 achieves already.
 - Still good. Solid status
-- I want c
+- I want x
 
 <!---
 RogerDTAD1/RogerDTAD1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
